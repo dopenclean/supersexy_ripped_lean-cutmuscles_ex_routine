@@ -203,17 +203,17 @@
 
 ---
 
-### 7. Dead Hang
-**Sets:** 3 × 30-60 sec | **Rest:** 60 sec
+### 7. Dumbbell Shrugs
+**Sets:** 3 × 15-20 reps | **Tempo:** 2-2-1 (2 sec up, 2 sec hold, 1 sec down) | **Rest:** 60 sec
 
 **Primary Muscles:**
-- Forearms (Grip) - 50%
-- Lats (Passive Stretch) - 30%
-- Core Stabilizers - 20%
+- Upper Trapezius (Upper Back/Neck Junction) - 70%
+- Levator Scapulae (Neck Stabilizers) - 20%
+- Forearms (Grip) - 10%
 
-**How It Works:** Decompresses the spine after sitting 10 hours coding. Builds forearm and grip strength (visible in T-shirts). The passive stretch on lats improves shoulder mobility and posture. Acts as active recovery while building functional strength. Essential for long-term joint health.
+**How It Works:** Builds the upper traps—the muscle that creates thickness between your neck and shoulders. Makes you look bigger in T-shirts and creates a more masculine upper body silhouette. The 2-second hold at the top maximizes muscle contraction. Also builds forearm grip strength from holding heavy dumbbells. Improves posture by strengthening the muscles that pull shoulders back.
 
-**Execution Cue:** Hang from pull-up bar (or door frame bar). Fully relax shoulders (don't actively pull). Breathe normally. Hold as long as possible.
+**Execution Cue:** Stand with dumbbells at sides. Shrug shoulders straight UP toward ears (don't roll them). Hold squeeze at top for 2 full seconds. Lower slowly under control. Keep arms straight throughout—don't bend elbows.
 
 ---
 
