@@ -1,6 +1,7 @@
 # The Lookism Physique Blueprint (Final Version)
 
-<img src="https://preview.redd.it/peak-physiques-in-lookism-v0-ez15gbsagl9b1.jpg" width="400" alt="Lookism Physique">
+<img src="https://i.pinimg.com/736x/df/af/ed/dfafed9629f712a642df59fb75cde0da.jpg" width="500" alt="Lookism Physique">
+
 
 **User Profile:** 29M | Programmer | 200lbs → 170lbs | Max Equipment: 40kg Total  
 **Goal:** Low body fat (10-12%), muscle definition, aesthetic "anime" proportions  
