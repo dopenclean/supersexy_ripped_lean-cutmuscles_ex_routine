@@ -109,6 +109,20 @@
 
 ---
 
+### 7. Dumbbell Shrugs
+**Sets:** 3 × 15-20 reps | **Tempo:** 2-2-1 (2 sec up, 2 sec hold, 1 sec down) | **Rest:** 60 sec
+
+**Primary Muscles:**
+- Upper Trapezius (Upper Back/Neck Junction) - 70%
+- Levator Scapulae (Neck Stabilizers) - 20%
+- Forearms (Grip) - 10%
+
+**How It Works:** Builds the upper traps—the muscle that creates thickness between your neck and shoulders. Makes you look bigger in T-shirts and creates a more masculine, powerful upper body silhouette. The 2-second hold at the top maximizes muscle contraction. Also builds forearm grip strength from holding heavy dumbbells. Improves posture by strengthening the muscles that pull shoulders back.
+
+**Execution Cue:** Stand with dumbbells at sides. Shrug shoulders straight UP toward ears (don't roll them forward or back). Hold squeeze at top for 2 full seconds. Lower slowly under control. Keep arms straight throughout—don't bend elbows. Think "try to touch ears with shoulders."
+
+---
+
 **MONDAY SUMMARY:**
 - **Total Exercises:** 6
 - **Total Sets:** 23
