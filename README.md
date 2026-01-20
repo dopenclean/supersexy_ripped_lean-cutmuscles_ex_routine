@@ -922,11 +922,3 @@ The plan is in front of you. The only question is: **Are you ready to execute?**
 - [ ] Reassess and stay committed
 
 ---
-
-**NOW STOP READING AND START EXECUTING.**
-
-Save this file to GitHub. Print the checklist. Take your "before" photos.
-
-Your transformation starts Monday. Not "someday." Monday.
-
-Good luck. You have everything you need.
