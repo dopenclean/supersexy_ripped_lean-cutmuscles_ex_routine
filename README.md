@@ -203,17 +203,17 @@
 
 ---
 
-### 7. Dumbbell Shrugs
-**Sets:** 3 × 15-20 reps | **Tempo:** 2-2-1 (2 sec up, 2 sec hold, 1 sec down) | **Rest:** 60 sec
+### 7. Barbell Glute Bridge
+**Sets:** 3 × 15-20 reps | **Tempo:** 2-1-2 (2 sec up, 1 sec hold, 2 sec down) | **Rest:** 60 sec
 
 **Primary Muscles:**
-- Upper Trapezius (Upper Back/Neck Junction) - 70%
-- Levator Scapulae (Neck Stabilizers) - 20%
-- Forearms (Grip) - 10%
+- Glutes (Gluteus Maximus) - 80%
+- Hamstrings (Back of Thigh) - 15%
+- Lower Back (Erector Spinae) - 5%
 
-**How It Works:** Builds the upper traps—the muscle that creates thickness between your neck and shoulders. Makes you look bigger in T-shirts and creates a more masculine upper body silhouette. The 2-second hold at the top maximizes muscle contraction. Also builds forearm grip strength from holding heavy dumbbells. Improves posture by strengthening the muscles that pull shoulders back.
+**How It Works:** The glute bridge is the most effective isolation exercise for building strong, powerful glutes. Strong glutes improve posture (prevent anterior pelvic tilt from sitting all day), enhance athletic performance, and create balance with your quad-dominant training. The barbell variation allows progressive overload. The 1-second hold at the top maximizes glute contraction. This exercise also strengthens the posterior chain, reducing lower back pain from desk work.
 
-**Execution Cue:** Stand with dumbbells at sides. Shrug shoulders straight UP toward ears (don't roll them). Hold squeeze at top for 2 full seconds. Lower slowly under control. Keep arms straight throughout—don't bend elbows.
+**Execution Cue:** Lie on back, feet flat on floor hip-width apart, knees bent 90 degrees. Place barbell across hip crease (use pad or towel for comfort). Drive through heels, squeeze glutes hard, lift hips until body forms straight line from knees to shoulders. Hold squeeze at top for 1 full second. Lower slowly under control. DO NOT arch lower back excessively at top—focus on glute squeeze, not back extension.
 
 ---
 
